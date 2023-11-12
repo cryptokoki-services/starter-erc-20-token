@@ -1,1 +1,1 @@
-# starter-erc-20-token
+# Starter ERC-20 Token
