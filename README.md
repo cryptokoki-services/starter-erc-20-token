@@ -13,6 +13,6 @@ If you want to get in on the trend and make money now, take our **free mini-cour
 
 ❓ And if you have any difficulties or questions, you can always refer to our [FAQ](https://cryptokoki.com/faq.html) or contact us:
 
-📯 Telegram Channel: [@koki_services](https://t.me/koki_services)
-📥 Telegram PM: [@crypt0koki](https://t.me/crypt0koki)
-📭 E-mail: cryptokoki@proton.me
+📯 Telegram Channel: [@koki_services](https://t.me/koki_services)<br>
+📥 Telegram PM: [@crypt0koki](https://t.me/crypt0koki)<br>
+📭 E-mail: cryptokoki@proton.me<br>
